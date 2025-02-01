@@ -1,1 +1,1 @@
-# s2ze.github.io
+# s2ze.net
